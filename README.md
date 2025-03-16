@@ -5,5 +5,5 @@
 
 - 📫 How to reach me **dekel@thewainers.com**
 
-- 📄 Know about my experiences [www.linkedin.com/in/dekelwainer](www.linkedin.com/in/dekelwainer)
+- 📄 Know about my experiences: www.linkedin.com/in/dekelwainer
  
